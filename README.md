@@ -1,1 +1,1 @@
-[Tilde Town](https://tilde.town/~redii)
+[~ Tilde Town](https://tilde.town/~redii)
